@@ -1,0 +1,1 @@
+"First lecture: where everything seems clear until you start doing the homework."
